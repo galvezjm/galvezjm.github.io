@@ -8,3 +8,6 @@ I am a research economist at the Bank of Spain. My research interests are in ass
 
 *Awarded Best PhD Student Paper, 2017 CEPR European Conference in Household Finance (Sardinia)*
 
+2. Conditional asymmetries in the sovereign-bank nexus, joint with Javier Mencia
+
+3. 
